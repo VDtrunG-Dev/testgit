@@ -2,4 +2,4 @@
 
 Tôi tên là trung
 hhhhhhhhhh
-duy Sắp giàu có
+duy Sắp giàu
